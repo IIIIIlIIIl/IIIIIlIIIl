@@ -1,6 +1,5 @@
 ### 👋 Hi, I’m @IIIIIlIIIl
 
-- middle school student
-- oier
+- Shanghai Jiao Tong University
+- once oier
 - Chinese
-- player of Dota2 & Terraria
